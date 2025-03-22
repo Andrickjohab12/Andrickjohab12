@@ -1,4 +1,5 @@
-# Hi there, I'm AndrickSV  <img width="30px" 
+# Hi there, I'm AndrickSV  
+
 
 <img align="right" alt="GIF" height="160px" src="https://media.giphy.com/media/du3J3cXyzhj75IOgvA/giphy.gif" />
 
