@@ -17,10 +17,9 @@
 ### Contact with me 📝
 
 
-[<img align="left" alt="Andrick_san | Instagram" height="30px" src="https://www.instagram.com/andrick_san?igsh=aG5wMmcza2tkY294&utm_source=qr"/>]
-[<img align="left" alt="Johab Sandoval | Facebook" height="30px" />]
-[<img align="left" alt="l24212686@tectijuana.edu.mx | Instagram" height="30px" />]
-
+Instagram:Andrick_san
+Facebook:Johab Sandoval
+Gmail:l24212686@tectijuana.edu.mx, AndrickJohab@gmail.com
 
 <br />
 
