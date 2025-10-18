@@ -18,7 +18,9 @@
 
 
 Instagram:Andrick_san
+<br>
 Facebook:Johab Sandoval
+<br>
 Gmail:l24212686@tectijuana.edu.mx, AndrickJohab@gmail.com
 
 <br />
